@@ -1,4 +1,4 @@
-# Artistes mort dans le game (Avant 2012 inclus, electro only)
+# Artistes (Avant 2012 inclus, electro only)
 
 - Basto
 - Jack Holidays & Mike Candys
@@ -7,11 +7,10 @@
 - Nicky Romero
 - Remady
 - Basshunter
-- Black eyes peas ??
-- LMFAO ??
+- Black eyes peas
+- LMFAO
 - Taio Cruz
-- Usher
-- Swedish house mafia ??
+- Swedish house mafia
 - Alex Gaudino
 - Benny Benassi
 - Eric Prydz
@@ -22,8 +21,16 @@
 - Mondotek
 - Afrojack
 - Klaas
-- Kylie Minogue xD
 - Yelle
 - Koxie
-- Fatal bazooka
-...
+- Tiesto
+- PSY
+- Yolanda Be Cool 
+- Duck Sauce
+- Projet X
+- DJ antoine
+- Guru Josh
+- Supermode
+- Armin Van Burren
+- Laurent Wolf
+- Feede le grand
