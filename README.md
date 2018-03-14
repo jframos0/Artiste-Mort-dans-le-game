@@ -73,3 +73,12 @@
 - Michael Mind
 - Radio Project
 - Far East Movement
+- Flo rida
+- Sasha lopez
+- Tom Boxer
+- Avicii
+- Bodybangers
+- Loona
+- Lucenzo
+- Global deejays
+- Enur ft Natasja
