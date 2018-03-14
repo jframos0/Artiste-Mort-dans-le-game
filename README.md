@@ -34,3 +34,6 @@
 - Armin Van Burren
 - Laurent Wolf
 - Feede le grand
+- Cascada
+- Inna
+- Kesha
