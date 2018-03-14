@@ -58,3 +58,12 @@
 - Corona
 - Alice DJ
 - SNAP!
+- 2 unlimited 
+- Culture Beat
+- Dr Alban
+- MC Hammer
+- Rozalla
+- Capella
+- Black mamba
+- Discobitch
+- Helmut fritz
