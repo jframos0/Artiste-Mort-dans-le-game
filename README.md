@@ -25,4 +25,5 @@
 - Kylie Minogue xD
 - Yelle
 - Koxie
+- Fatal bazooka
 ...
