@@ -37,3 +37,17 @@
 - Cascada
 - Inna
 - Kesha
+- Modjo
+- Daft Punk
+- Ocean Drive
+- R.I.O.
+- Scooter
+- Atb
+- The underdog project
+- Example
+- Davide tavare
+- David Guetta
+- Martin Solveig
+- Bob Sinclar
+- Robert miles
+- Spencer & hill
