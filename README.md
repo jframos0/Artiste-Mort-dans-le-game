@@ -67,3 +67,9 @@
 - Black mamba
 - Discobitch
 - Helmut fritz
+- Jakarta
+- Patrick Miller
+- Edx
+- Michael Mind
+- Radio Project
+- Far East Movement
