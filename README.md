@@ -51,3 +51,5 @@
 - Bob Sinclar
 - Robert miles
 - Spencer & hill
+- Gala
+- September
