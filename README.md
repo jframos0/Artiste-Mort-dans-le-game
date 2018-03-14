@@ -54,3 +54,7 @@
 - Gala
 - September
 - Eiffel 65
+- Haddaway 
+- Corona
+- Alice DJ
+- SNAP!
