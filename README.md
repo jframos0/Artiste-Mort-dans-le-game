@@ -82,3 +82,12 @@
 - Lucenzo
 - Global deejays
 - Enur ft Natasja
+- Kavinsky
+- Gigi d Agostino
+- M83
+- Antoine Clamaran
+- Sharam the one
+- John dahkback the blink
+- Akcent
+- Gareth Emery
+- Pendulum
